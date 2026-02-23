@@ -1,7 +1,6 @@
-Round 
-papier
-
+Round 1
+paper
 Round 2
-stein
+stone
 Round 3
-schere
+
