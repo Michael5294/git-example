@@ -10,10 +10,3 @@ Australia's favourite classic zucchini slice recipe
     60ml (1/4 cup) vegetable oil
 
 
-Vorgehen
-
-
-
-New recipie 
-
-Vegan rec
